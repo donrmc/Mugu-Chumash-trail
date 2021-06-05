@@ -1,0 +1,2 @@
+# Mugu-Chumash-trail
+Hiking
